@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Minjutin.
+- 👀 I’m interested in games, movies, Pokémon, creating lists and charts, cute things and problem solving.
+- 🌱 I’m currently learning game programming in Xamk.
+- 💞️ I’m looking to collaborate on. ;)
+- 📫 How to reach me: Nope.
