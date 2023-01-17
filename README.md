@@ -2,4 +2,4 @@
 - 👀 I’m interested in games, movies, creating lists and charts, cute things (like crocodiles) and problem solving.
 - 🌱 I’m currently learning game programming in Xamk.
 - 💞️ I'm looking for
-- 📫 How to reach me: 
+- 📫 How to reach me: https://fi.linkedin.com/in/milja-kr%C3%A9s-388920220
